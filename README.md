@@ -1,5 +1,5 @@
 Caio Henrique Marques
-Formado em Ciências Atuariais
+Formado em Ciências Atuariais /n
 Consultor da Bip
 
 https://www.linkedin.com/in/caio-henrique-marques-243719114/
