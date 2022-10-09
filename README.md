@@ -1,6 +1,6 @@
 Caio Henrique Marques
 Formado em Ciências Atuariais
-Consultor da Bip
+Cursando Pós Graduação IA - PECE POLI
 
 https://www.linkedin.com/in/caio-henrique-marques-243719114/
 
